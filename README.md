@@ -1,1 +1,1 @@
-# danielsz.github.io
+https://dandresz.github.io/danielsz.github.io/
